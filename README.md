@@ -1,2 +1,2 @@
-### Software Developer
-:envelope: [Contact](mailto:business@ahxel.com)
+### software developer
+✉ [contact](mailto:business@ahxel.com)
